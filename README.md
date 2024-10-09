@@ -11,4 +11,4 @@ elenalima@prof.educacao.sp.gov.br
 
 
 Um grande abraço,
-Profa Elena Lima.
+Professora Mestra Elena Lima.
